@@ -26,7 +26,7 @@ I enjoy the challenge of taking a complex logic problem and turning it into clea
 
 ### 📫 Let's Connect!
 
-*   **LinkedIn:** [linkedin.com/in/sai-sharan-tej](https://linkedin.com/in/sai-sharan-tej) 
+*   **LinkedIn:** [linkedin.com/in/sai-sharan-tej](https://linkedin.com/in/sai-sharan-tej/) 
 *   **Email:** [saisharantej9@gmail.com](mailto:saisharantej9@gmail.com) 
 
 ---
